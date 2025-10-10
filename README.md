@@ -37,4 +37,4 @@ Centralizar e otimizar o atendimento interno e externo da empresa, utilizando o 
 **Guilherme Silva**  
 Profissional de TI | Gestão e Suporte Técnico  
 📍 São Paulo - SP  
-💼 [LinkedIn]([https://www.linkedin.com](https://www.linkedin.com/in/guilherme-augusto-ribeiro-da-silva-307462244/))  
+💼 [LinkedIn](https://www.linkedin.com](https://www.linkedin.com/in/guilherme-augusto-ribeiro-da-silva-307462244/)  
